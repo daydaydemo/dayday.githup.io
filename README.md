@@ -1,2 +1,0 @@
-# dayday.githup.io
-daydayupwebpage
